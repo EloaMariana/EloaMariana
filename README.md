@@ -3,6 +3,3 @@
 - 🌱 Eu estou aprendendo a mexer na plataforma...
 - 💞️ Eu preciso colaborar para aprender e melhorar...
 - 📫 Como chegar até mim [email] eloa.jesus@escola.pr.gov.br
--
--
--
